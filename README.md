@@ -1,0 +1,1 @@
+İki metnin benzerlikleri
